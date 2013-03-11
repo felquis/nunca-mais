@@ -5,3 +5,4 @@ Nunca mais
 * Dormir mais de 9 horas.
 * Comer até não aguentar mais.
 * Aceitar responsabilidades sem pensar no futuro.
+* Cobrar barato pra ficar até tarde trabalhando(Vide item 1 da lista)
